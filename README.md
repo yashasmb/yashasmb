@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yashasmb
 - 👀 I’m interested in nothing. 
-- 🌱 I’m currently learning pyhton
+- 🌱 I’m currently learning python
 - 📫 How to reach me yashasmb2003@gmail.com  
 
 
