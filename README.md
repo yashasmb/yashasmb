@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yashasmb
-- 👀 I’m interested in nothing. 
+- 👀 I’m interested in a lot of things such as how things works around the world. 
 - 🌱 I’m currently learning python
 - 📫 How to reach me yashasmb2003@gmail.com  
 
